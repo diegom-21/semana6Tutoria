@@ -22,3 +22,4 @@
 ### 🌱 Objetivo de desarrollo personal:
 #### Desarrollar la constancia en mis compromisos.Voy a enfocarme en ser más disciplinado con mis rutinas, aunque no siempre tenga motivación. Entender que la constancia se construye con pequeños pasos diarios será clave.
 
+(tablerodiego.png)
